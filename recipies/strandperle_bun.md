@@ -1,2 +1,4 @@
 #Starndeperle Bun#
-This whole recipie goes bacl to a visit at **Strandperle Restaurant** in Hamburg, Germany.
+This whole recipe goes back to a visit at **Strandperle Restaurant** in Hamburg, Germany.
+
+Total Time to prepare 8 hours.
