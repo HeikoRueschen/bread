@@ -1,2 +1,3 @@
 # bread
-Collection of thought around sourdough bread.
+Collection of thoughts around sourdough bread.
+:bread:
