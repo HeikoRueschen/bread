@@ -29,4 +29,4 @@ After proving, mix both doughs and the salt for at least 8 minutes in the kneade
 Let the dough prove for another 150 minutes (2:30 hrs). After 50 and 100 minutes stretch and fold the dough.
 After proving, create 12 little dough pieces and roll them to little flat buns. Store them another 60 minutes in baker linen.
 
-Bake at 250°C for 12 minutes ideally on a pizza stone untillt they develop a glolden crust. Enjoy.
+Bake at 250°C for 12 minutes ideally on a pizza stone until they develop a glolden crust. Enjoy.
