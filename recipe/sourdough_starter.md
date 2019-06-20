@@ -11,7 +11,7 @@ First of all we need to create the sourdough itself by processing flour and wate
 Day | Activity
 -------- | ------
 1 | Mix 50 g flour with 50 ml water and let it rest in warm spot for 24 hrs
-2 | Discard half of the dough and add 50g flour and 5 ml water and put it at a warm spot for 24hrs
+2 | Discard half of the dough and add 50g flour and 50 ml water and put it at a warm spot for 24hrs
 3-5 | Repeat day 2 procedure
 6 | Discard half of the dough and add 100g flour and 100 ml water and let it prove for another 24 hrs
 7 | your sourdough starter culture is ready to be used :octocat: 
