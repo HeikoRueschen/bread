@@ -18,15 +18,15 @@ Autolyse dough:
 
 
 Main dough:
-sourdough
+Sourdough
 Autolyse dough
 14g    Salt
 
-to get started create sourdogh by mixing ingredients with a fork or spoon. let it prove for 5 hours at around 30°C. Also mix the autolyse dough with a kneader for 2 minutes and let it prove for 5hrs at room temperature.
+To get started create sourdogh by mixing ingredients with a fork or spoon. Let it prove for 5 hours at around 30°C. Also mix the autolyse dough with a kneader for 2 minutes and let it prove for 5hrs at room temperature.
 
 
 After proving, mix both doughs and the salt for at least 8 minutes in the kneader.
 Let the dough prove for another 150 minutes (2:30 hrs). After 50 and 100 minutes stretch and fold the dough.
 After proving, create 12 little dough pieces and roll them to little flat buns. Store them another 60 minutes in baker linen.
 
-Bake at 250°C for 12 minutes ideally on a pizza stone until they develop a glolden crust. Enjoy.
+Bake in oven at 250°C for 12 minutes ideally on a pizza stone until they develop a golden crust.<br><br>Enjoy.
