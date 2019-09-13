@@ -19,7 +19,7 @@ Day | Activity
 In case of uncertainty don’t hesitate to ask @HeikoRueschen
 
 You can use this sourdough starter over and over again. Whenever you bake bread and take some of the starter to create your sourdogh, make sure to keep some of the starter and feed it with water and flour. My starter is now almost 2 years old and we name it "Werner" because its made of wheat flour (Weizenmehl in German).
-You can keep the starter in the fridge for about 1 week without feeding it. After on week you need to start feeding again with flour and water. In case you plan a longer absence you can also deep freeze the starter culture and reactivate it on your return.
+You can keep the starter in the fridge for about 1 week without feeding it. After one week you need to start feeding again with flour and water. In case you plan a longer absence you can also deep freeze the starter culture and reactivate it on your return.
 
 ## Where to find help
 In case you want to learn more about sourdough bread and are able to read german, I sugest to have a look at [Ploetzblog](http://www.ploetzblog.de)
